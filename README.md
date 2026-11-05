@@ -6,7 +6,7 @@ I kin Wanderer and Lohen ! The only ships ill c+h with from those three are Kazu
 
 
 
-I usually am wanderer/scaramouche/illuga/lohen !! 
+I usually am wanderer/scaramouche !! 
 
 Carrd - https://shmichzke.carrd.co
 <!--
