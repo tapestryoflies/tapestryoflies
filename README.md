@@ -1,5 +1,7 @@
 ## Hi! I usually don't talk so please don't expect me to :) I encourage c+h but I do have boundaries for them in the ponies' name if I dont want to c+h with anything specific!
 I kin Wanderer! The only ships ill c+h with are Kazuscara and sethoscara I'll c+h with other characters but pls don't think I ship it.
+
+## YUMESHIPPERS DNI !!!
               
 <img width="1003" height="565" alt="image" src="https://github.com/user-attachments/assets/25f64505-2073-401c-90d2-963e0d507012" />
 
@@ -7,8 +9,6 @@ I kin Wanderer! The only ships ill c+h with are Kazuscara and sethoscara I'll c+
 
 
 I usually am wanderer/scaramouche/kabuki !! 
-
-## YUMESHIPPERS DNI !!!
 
 Carrd - https://shmichzke.carrd.co
 <!--
